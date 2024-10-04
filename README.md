@@ -1,2 +1,4 @@
 # Ultimate-JB-Mod-2024
-Ultimate-JB (UJBM + JBE)
+Last Version of Ultimate Jailbreak 
+
+Mod Edited by: Just^ V0jslav:)
